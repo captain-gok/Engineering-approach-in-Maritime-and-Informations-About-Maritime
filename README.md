@@ -1,0 +1,1 @@
+The documents in this repository contain information created by artificial intelligence and available on the internet. But I combined them myself.  My goal here is to learn about my department and do research about it.  I'm sorry for my mistakes.:)
